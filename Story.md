@@ -1,6 +1,6 @@
-# Story
+# Outsider
 
-“Empty.” The words sounded foreign to him, spoken in a forgotten language and a voice that was not his. 
+  “Empty.” The words sounded foreign to him, spoken in a forgotten language and a voice that was not his. 
 “Cold.” Beads of sweat rolled down his forehead as the sky burned with fire, yet he could only dream of its warm embrace. 
 “Wet.” It surrounded him, an endless horizon of movement, bobbing up and down to its own unheard rhythm. 
 “Forgotten.” Minutes turned to hours as he lay there motionless, his thoughts lost to the unforgiving sea. 
@@ -11,7 +11,7 @@
 “Questions.” Many voices and languages, yet only one question. 
 “Metal…” Tears ran down his face as he forced himself to grin. “It sank.”
 
-The man lay motionless in his bed, eyes fixed upon the ceiling staring into emptiness. 
+  The man lay motionless in his bed, eyes fixed upon the ceiling staring into emptiness. 
 “Memories, that’s all they are. Memories, nothing more.” 
 Rising from bed was no easy task for him. 
 Age had not been kind upon his body; years of constant work had taken their toll. 
