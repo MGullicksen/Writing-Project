@@ -10,3 +10,14 @@
 “Found.” Welded hands reached out toward his broken frame swallowing him whole. 
 “Questions.” Many voices and languages, yet only one question. 
 “Metal…” Tears ran down his face as he forced himself to grin. “It sank.”
+
+The man lay motionless in his bed, eyes fixed upon the ceiling staring into emptiness. 
+“Memories, that’s all they are. Memories, nothing more.” 
+Rising from bed was no easy task for him. 
+Age had not been kind upon his body; years of constant work had taken their toll. 
+His physical condition consisted of frail bones, weak lungs, rust in his bloodstream and a missing arm. 
+His mental condition could be summed up with one word, stubborn. 
+Work was work to him. 
+Simply he worked just because he could and paid no heed to those who warned him not to. 
+He had placed yesterdays mail upon the coffee table, all of it junk mail with the exception of a small letter. 
+There was only one word printed on its face, his name.
