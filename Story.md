@@ -1,4 +1,4 @@
-# Story
+# Outsider
 
 “Empty.” The words sounded foreign to him, spoken in a forgotten language and a voice that was not his. 
 “Cold.” Beads of sweat rolled down his forehead as the sky burned with fire, yet he could only dream of its warm embrace. 
